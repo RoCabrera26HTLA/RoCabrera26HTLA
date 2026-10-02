@@ -1,6 +1,3 @@
 ## I like very very very much a turtle I had like 5 turtles I named them the ninja turtles but sadly they dried out and I didn't put water in there tank
-https://www.google.com/search?tbnid=M1BFv3Pw_FD4TM&tbnh=0&tbnw=0&rlz=1CAFJUS_enUS1226&sca_esv=46fafbc9abcb6d45&cs=1&sxsrf=APpeQnuKiTFP_80F9jbd1jY04Y6UEMdZjw%3A1790980178591&udm=2&q=real+life+real+ninja+turtles&sa=X&ved=2ahUKEwjLv9-KsZyXAxVhJkQIHYD1Jj0QtI8BegQINBAB&biw=1333&bih=664&dpr=1.44&tbs=sur%3Acl&safe=active&ssui=on#sv=CAMSURoyKhBlLVJYSFVSU3ZWNXpSYzFNMg5SWEhVUlN2VjV6UmMxTToObXoydElPbWZUMzZSX00gBCoXCgFzEhBlLVJYSFVSU3ZWNXpSYzFNGAEwARgHIKDekbQJSggQAhgBIAIoAQ
-<img width="1024" height="1024" alt="61ba98cd-90a7-4198-befa-f9f3be6f38a4" src="https://github.com/user-attachments/assets/c4a55b49-aaa8-4efc-ac88-c5ddc42f21fb" />
-I also Like monkeys but they are to complicated
-<img width="720" height="900" alt="funny-face-12963753" src="https://github.com/user-attachments/assets/b42323b3-a68a-414b-9567-960655ecdfb0" />
-<img width="491" height="407" alt="images" src="https://github.com/user-attachments/assets/f28fad39-604d-4481-8978-3b14bb36b4e1" />
+https://www.google.com/search?tbnid=M1BFv3Pw_FD4TM&tbnh=0&tbnw=0&rlz=1CAFJUS_enUS1226&sca_esv=46fafbc9abcb6d45&cs=1&sxsrf=APpeQnuKiTFP_80F9jbd1jY04Y6UEMdZjw%3A1790980178591&udm=2&q=real+life+real+ninja+turtles&sa=X&ved=2ahUKEwjLv9-KsZyXAxVhJkQIHYD1Jj0QtI8BegQINBAB&biw=1333&bih=664&dpr=1.44&tbs=sur%3Acl&safe=active&ssui=on#sv=CAMSURoyKhBlLVJYSFVSU3ZWNXpSYzFNMg5SWEhVUlN2VjV6UmMxTToObXoydElPbWZUMzZSX00gBCoXCgFzEhBlLVJYSFVSU3ZWNXpSYzFNGAEwARgHIKDekbQJSggQAhgBIAIoAQ\
+<img width="1919" height="1199" alt="image" src="https://github.com/user-attachments/assets/539cfeac-d993-4c8d-9355-823ab3073f83" />
